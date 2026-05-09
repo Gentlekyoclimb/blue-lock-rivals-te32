@@ -1,4 +1,4 @@
-
+blue lock rivals rare Script is the best blue lock rivals Script, featuring instant win and silent aim. Safe and powerful for all your needs.
 
 
 
